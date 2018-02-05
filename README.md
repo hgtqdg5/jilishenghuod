@@ -1,1 +1,6 @@
-" " " " " " " การจัดการบันทึก " ถูกออกแบบมาเป็นโปรแกรมที่ออกแบบมาสําหรับผู้หญิงและการใช้โปรแกรม โปรแกรมนี้จะใช้แผนภูมิที่น่ารักของวันนี้จะรอโอกาสการตั้งครรภ์ครั้งต่อไปวันที่ทางสรีรวิทยาที่แสดงออกมาอย่างเข้าใจได้ง่ายและสามารถใช้ในการจัดการและการบันทึกรอบทางสรีรวิทยา ผู้หญิงที่ชื่นชอบความสะดวกสบายในการทำงานให้บริการฟรีทั้งหมด
+[nicht einfach notizen]
+Tagebuch - - - Leben und Arbeiten auf der Kleinen helfer, was sie wollen.
+Bilder und texte tagebücher inhalte der diversifizierung, Datum, das Wetter, die regionale Integration, die sie tagebuch zu bunt.
+... in deinem wichtiger moment erinnern an sie.
+Zum jubiläum und ablauf der erinnerung, wiederholt an multi - mode - Wecker Weise in ihrer Zeit unter der marke moment erinnern.
+Notebook - jederzeit Frei zu schreiben.
